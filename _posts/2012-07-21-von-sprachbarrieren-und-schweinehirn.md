@@ -1,0 +1,18 @@
+---
+id: 1381
+title: 'Von Sprachbarrieren und Schweinehirn'
+date: '2012-07-21T17:45:20+02:00'
+author: Pädi
+layout: post
+guid: 'http://www.zweimalweltbitte.ch/?p=1381'
+permalink: /2012/07/von-sprachbarrieren-und-schweinehirn/
+categories:
+    - China
+    - Nordostasien
+---
+
+[![Hot Pot in Guilin](https://lh4.googleusercontent.com/-76hsThYM-1c/UApf3BhhatI/AAAAAAAAO9c/qnwz2d0DzEk/s400/DSC06798.JPG "Hot Pot in Guilin")](https://lh4.googleusercontent.com/-76hsThYM-1c/UApf3BhhatI/AAAAAAAAO9c/qnwz2d0DzEk/DSC06798.JPG)Englisch, Spanisch, Französisch, Italienisch, Deutsch nützen beim Reisen in China herzlich wenig. Zum Glück hatten wir uns noch ein kleines Wörterbuch Mandarin/Englisch zugelegt. So konnten wir uns auf der Nachtzugfahrt nach Guilin mit Händen und Füssen wörtchenweise mit unseren Mitreisenden im gleichen Abteil austauschen. Mit Geräuschen und Gesten kommunizierend kamen wir uns zeitweilig vor wie Kleinkinder im Sandkasten. Trotzdem schafften wir es immerhin dank Weltkarte im Lonely Planet unsere Reiseroute zu beschreiben. Und die nette Chinesin zeigte uns im Gegenzug auf ihrer Kamera stolz ein Video von ihrem kleinen Hund, in dem er vor dem Fernseher sitzt und zu einem chinesischen Musikvideo mitjault. Trotz Sprachbarriere war dies eine ganz witzige Zugfahrt.
+
+Wie wir gehört hatten, sollte Guilin ein ziemlich touristischer Ort sein. Nur fragten wir uns ein paar Stunden nach der Ankunft, wo denn die ganzen Touristen sind. Wir stellten fest, dass die grosse Masse der Touris Chinesen sind, ausländische Reisende waren in der Stadt kaum anzutreffen. So verwunderte es nicht, dass in den Restaurants die Speisekarten auf Chinesisch oder nur in schlecht übersetztem Englisch vorhanden waren. Was versteht man zum Beispiel unter der Speise „Old Mothers Guilin“? Wir hoffen mal, irgendetwas nach Grossmutters Art und kein Oma-Gschnetzeltes. Probiert haben wir es nicht, sondern haben uns schön an die Speisen gehalten, bei denen wir auf die bunten Bildchen in der Karte zeigen konnten.
+
+Mutig wagten wir uns in Guilin in ein Hot Pot Restaurant. Hot Pot (den chinesischen Begriff weiss ich nicht mehr) wäre bei uns das Fondue Chinoise. Na, von wo kommt wohl der Name? Die Bedienung drückte uns sogleich die riesengrosse Liste zum Ankreuzen der gewünschten Zutaten in die Hand. Glücklicherweise bekamen wir direkt eine englische Liste – wir waren die einzigen Nicht-Asiaten im Restaurant. Normalerweise probieren wir auf unseren Reisen gerne lokale Spezialitäten aus, in China verfahren wir da aber etwas anders. Esel, Taube, Hund, Schweinehirn und diverse Innereien liessen wir gerne beiseite und kreuzten nur einigermassen Bekanntes an. Die Überraschungen blieben so aus und das Essen war lecker. Etwas irritiert waren wir nur durch die anderen Gäste, deren Essen beinahe kalt wurde vom ständigen Rüberstarren zu uns. Machten wir etwas falsch beim Essen? Wir denken nicht, denn wir schielten zuvor unauffällig zu den anderen Tischen um das Hot Pot Prozedere abzugucken. Nun ja, es sollte nicht das letzte Mal bleiben, dass uns die Chinesen „intensiv mustern“.

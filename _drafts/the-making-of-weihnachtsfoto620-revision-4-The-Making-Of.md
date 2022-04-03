@@ -1,0 +1,29 @@
+---
+id: 673
+title: 'The Making Of'
+date: '2012-02-15T20:19:40+01:00'
+author: Francesca
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2012/02/620-revision-4/'
+permalink: '/?p=673'
+---
+
+Es liegt vom Gefühl her schon wieder WELTEN zurück, doch vorgenommen ist eben vorgenommen. Ich will euch doch nicht diese tollen, professionellen Fotos zu unserem Weihnachtsbeitrag unterschlagen.
+
+[![](https://lh3.googleusercontent.com/-h7uBPANACEs/TznBJGIVoHI/AAAAAAAAMaA/oyNvE2hLISs/s400/DSC02336.JPG "Nummer 1")](https://lh3.googleusercontent.com/-h7uBPANACEs/TznBJGIVoHI/AAAAAAAAMaA/oyNvE2hLISs/DSC02336.JPG)
+
+Test 1: Wie sehe ich aus? Was macht der Hintergrund? Kamera richtig eingestellt? Bitte lächeln!
+
+[![](https://lh5.googleusercontent.com/-Ne3odBkWnVw/TznBAWNWJzI/AAAAAAAAMZ0/z2sTRBWZMFQ/s400/DSC02337.JPG "Nummer 2")](https://lh5.googleusercontent.com/-Ne3odBkWnVw/TznBAWNWJzI/AAAAAAAAMZ0/z2sTRBWZMFQ/DSC02337.JPG)
+
+Test 2: Au weia… Am Hintergrund müssen wir noch feilen – da ist sichtbar, das es ein Vorhang ist und wir vor der Heizung sitzen! Auch lenkt dieser Arm ziemlich ab. Vom Lachen möchte ich gar nicht erst anfangen…
+
+[![](https://lh6.googleusercontent.com/-T57MSOpTqRY/TznBIZNr08I/AAAAAAAAMZ8/yykjpfy4BcA/s400/DSC02338.JPG "Nummer 3")](https://lh6.googleusercontent.com/-T57MSOpTqRY/TznBIZNr08I/AAAAAAAAMZ8/yykjpfy4BcA/DSC02338.JPG)
+
+Test 3: Hey, halt – ich wusste gar nicht, dass jetzt gerade getestet wurde! Schliesslich muss sich jemand um ein Podest für die Kamera kümmern, so dass dieser störende Arm nicht mehr zum Einsatz kommt.
+
+[![](https://lh4.googleusercontent.com/-MjPDs5UthrQ/TznCAqkM9BI/AAAAAAAAMaQ/0DfHbk-hXtQ/s400/DSC02339.JPG "Nummer 4")](https://lh4.googleusercontent.com/-MjPDs5UthrQ/TznCAqkM9BI/AAAAAAAAMaQ/0DfHbk-hXtQ/DSC02339.JPG)
+
+Test 4: Jaaa, schon viel besser. Heizung weg, aber immer noch sichtbarer Vorhang. Da muss noch etwas Zoom ran.
+
+[![](https://lh5.googleusercontent.com/-TM_Y49GIiMY/TznCJLcLwzI/AAAAAAAAMaY/c6zP6zbeAM8/s400/DSC02340.JPG "Nummer 5")](https://lh5.googleusercontent.com/-TM_Y49GIiMY/TznCJLcLwzI/AAAAAAAAMaY/c6zP6zbeAM8/DSC02340.JPG)Test 5: Amaaaazing, wooonderful, looovely. Just greeeeat! Bildausschnitt perfekt: weihnachtlicher Hintergrund mit einigermassen normal lächelndem Vordergrund (strahlend weisse Zähne), ein bisschen Bling-Bling und die Frisur hält!

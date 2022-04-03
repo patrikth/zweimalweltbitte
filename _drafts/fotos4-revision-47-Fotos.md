@@ -1,0 +1,15 @@
+---
+id: 453
+title: Fotos
+date: '2011-12-12T00:28:48+01:00'
+author: Pädi
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2011/12/4-revision-47/'
+permalink: '/?p=453'
+---
+
+<div class="kontinent">## Südamerika
+
+<div class="kontinent-fotos"><div class="polaroid"><div class="polaroid-bild">[![](https://lh5.googleusercontent.com/-p0s4xAUtCpQ/TnvMnw_fibE/AAAAAAAAK4c/Gy84K_7l-uo/s160-c/Brasilien.jpg)](https://picasaweb.google.com/patrikth/Brasilien?authuser=0&feat=embedwebsite)</div><div class="polaroid-text">[Brasilien](https://picasaweb.google.com/patrikth/Brasilien?authuser=0&feat=embedwebsite)</div></div><div class="polaroid"><div class="polaroid-bild">[![](https://lh4.googleusercontent.com/-Y3hevXm8Ong/TsbRwrH05ME/AAAAAAAALaM/yU1rN8J2u18/s160-c/Paraguay.jpg)](https://picasaweb.google.com/patrikth/Paraguay?authuser=0&feat=embedwebsite)</div><div class="polaroid-text">[Paraguay](https://picasaweb.google.com/patrikth/Paraguay?authuser=0&feat=embedwebsite)</div></div><div class="polaroid"><div class="polaroid-bild">[![](https://lh3.googleusercontent.com/-fbdc6lau4zA/TtIlISi0n0E/AAAAAAAALcE/YX8mJ5FcWEo/s160-c/Uruguay.jpg)](https://picasaweb.google.com/patrikth/Uruguay?authuser=0&feat=embedwebsite)</div><div class="polaroid-text">[Uruguay](https://picasaweb.google.com/patrikth/Uruguay?authuser=0&feat=embedwebsite)</div></div><div class="polaroid"><div class="polaroid-bild">[![](https://lh4.googleusercontent.com/-A8Ic-vTRWwo/Tr06gw6Yv2E/AAAAAAAALnI/w13maPiHizY/s144-c/Argentinen.jpg)](https://picasaweb.google.com/patrikth/Argentinen?authuser=0&feat=embedwebsite)</div><div class="polaroid-text">[Argentinien](https://picasaweb.google.com/patrikth/Argentinen?authuser=0&feat=embedwebsite)</div></div></div></div><div class="kontinent">## Südostasien 2009
+
+<div class="kontinent-fotos"><div class="polaroid"><div class="polaroid-bild">[![](https://lh3.googleusercontent.com/-sKzRtLgf8FE/Smas1d-kQvE/AAAAAAAAK08/8o592y4fetM/s160-c/Indonesien.jpg)](https://picasaweb.google.com/patrikth/Indonesien?authuser=0&feat=embedwebsite)</div><div class="polaroid-text">[Indonesien](https://picasaweb.google.com/patrikth/Indonesien?authuser=0&feat=embedwebsite)</div></div><div class="polaroid"><div class="polaroid-bild">[![](https://lh3.googleusercontent.com/-K5vfc93njjw/Slnjt4oDRSE/AAAAAAAAJ9I/oxCf8w4HCOY/s160-c/Vietnam.jpg)](https://picasaweb.google.com/patrikth/Vietnam?authuser=0&feat=embedwebsite)</div><div class="polaroid-text">[Vietnam](https://picasaweb.google.com/patrikth/Vietnam?authuser=0&feat=embedwebsite)</div></div></div></div>

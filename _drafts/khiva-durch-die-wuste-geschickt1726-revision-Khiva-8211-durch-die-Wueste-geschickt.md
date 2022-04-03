@@ -1,0 +1,15 @@
+---
+id: 1727
+title: 'Khiva &#8211; durch die Wüste geschickt'
+date: '2012-11-01T19:20:51+01:00'
+author: Francesca
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2012/11/1726-revision/'
+permalink: '/?p=1727'
+---
+
+Sollen wir durch die Wüste nach Khiva oder nicht? Wir waren uns da nicht so schlüssig. Einerseits hat Khiva viel Architektur (noch mehr…) zu bieten, andererseits ist Khiva momentan nur über eine holprige Schotterstrasse erreichbar. Doch soll es da ganz schön chillig sein – so richtig zum Relaxen, aber die Fahrt wäre sieben Stunden lang. Auch stehe dort in Khiva das höchste Minarett Usbekistans, das man auch besteigen könne, jedoch müssten wir ein Taxi „mieten“, um überhaupt nach Khiva zu gelangen. Ein Plus wäre jedoch die total erhaltene Stadtmauer, jedoch wirke das ganze wie eine Museumsstadt.
+
+Hin und her, hin und her, hin und her. Wir wollten es wiedermal selber herausfinden.
+
+Ach ja, alles hat sich bewahrheitet. Wirklich alles.

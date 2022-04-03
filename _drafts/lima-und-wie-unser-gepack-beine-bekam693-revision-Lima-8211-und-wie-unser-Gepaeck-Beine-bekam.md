@@ -1,0 +1,15 @@
+---
+id: 694
+title: 'Lima &#8211; und wie unser Gepäck Beine bekam'
+date: '2012-02-24T05:20:15+01:00'
+author: Francesca
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2012/02/693-revision/'
+permalink: '/?p=694'
+---
+
+Endlich wieder Küste, für mich gleichbedeutend mit Wärme und tollem Essen. Den ganzen Tag warmes Wetter und ein Ceviche nach dem anderen (kalte, halbrohe, in Limetten marinierte Meeresfrüchte mit Scharf und Koriander). Die Limeños kommen einem enorm entgegen mit ihrem Essen, da gibts solch gute und supergünstige Mittagsmenüs inkl. Getränk für sage und schreibe 3 Stutz. Von den süssen Köstlichkeiten will ich gar nicht erst beginnen – aber lasst euch gesagt sein: die besten Churros (frittierte Teigstange mit Zucker bestreut oder mit Dulce de Leche- oder Schoggifüllung), die gibts im Manolo…
+
+Nebst dem Essen gabs auch anderes zu tun und da es sich auf Küstenhöhe plötzlich wieder schneller läuft und man wieder mehr Schnauf zur Verfügung hat, gaben wir dann auch Vollgas bei der Stadtbesichtigung. Kirchen waren die Hauptattraktion, so aus dem Bauch heraus haben wir bestimmt jede im Zentrum verfügbare Kirche besichtigt.. Aber sie sind eben auch wahnsinnig ansehlich, antik, schön, farbig, verschnörkelt, imposant usw usf. Eine gute Investition der Stadt war sicherlich auch die Rondelle im Parque Kennedy in Miraflores. Da tanzt samstags und sonntags alles, was noch auf zwei Beinen stehen kann. Stets war Männerwahl und Gringas willkommen. Aber die Gringa zierte sich und wollte partout nicht in die Rondelle aka Schlund – die Peruanerinnen hätten mich wegen meinen eher dürftigen Tanzkenntnissen in der Luft zerrissen!
+
+Nach 3 Tagen war dann auch wieder genug Stadt und wir entschieden uns, noch eine Zwischenstopp im Norden von Peru einzulegen. Ein Taxifahrer versprach uns unschlagbares Essen – wenn das kein Versprechen war. Beim besten Busunternehmen der Stadt kauften wir uns also Tickets nach Chiclayo, abends sollte es losgehen. Beim unternehmenseigenen Terminal mussten wir sogar unser Gepäck wägen und einchecken, als ob wir auf einem Flughafen wären. ‚Das ist ja obersicher und wahnsinnig pingelig für Südamerika‘, dachten wir uns noch. Dann hiess es warten. Erste Durchsage: Busverspätung von 15min… Zweite Durchsage: weitere Verspätung von 30min… Nach einer weiteren Stunde mal kurz nachfragen, aha, Bus kaputt, auf neuen Bus warten. Wieder warten. Keine Durchsage mehr. Erneutes Nachfragen nach einer weiteren Stunde. Waaas? Bus ist abgefahren? Mit dem Gepäck? Kein Bus mehr heute? Und selber Schuld sollten wir dann auch noch sein, wir hätten eben die Durchsage nicht gehört oder nicht verstanden, aha! Da sprach ich dann plötzlich sehr fliessend Spanisch und meine Mimik sprach glaube ich Bände… Gepäck in Chiclayo, wir immer noch in Lima. Der nächste verfügbare Bus ging in 24h, eine Extranacht mehr und dann hatten wir Lima endgültig gesehen.

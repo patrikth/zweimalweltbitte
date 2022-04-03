@@ -1,0 +1,19 @@
+---
+id: 483
+title: 'Bariloche &#8211; Weihnachten bei 30 Grad'
+date: '2011-12-30T02:42:41+01:00'
+author: Pädi
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2011/12/479-revision-4/'
+permalink: '/?p=483'
+---
+
+[![](https://lh4.googleusercontent.com/-VxnElj6o5cA/TvvIZALEWaI/AAAAAAAAL0Q/uxMXzNZgMX4/s400/DSC02426.JPG "Cerro Campanario, Bariloche")](https://lh4.googleusercontent.com/-VxnElj6o5cA/TvvIZALEWaI/AAAAAAAAL0Q/uxMXzNZgMX4/DSC02426.JPG)Wir sind ja eigentlich nicht besonders anspruchsvoll. Weil wir trotzdem Weihnachten weder im Reisebus noch in einem ausgestorbenen Kaff verbringen wollten, machten wir uns für die Feiertage San Carlos de Bariloche zum Ziel. Auf dem Weg nach Bariloche gabs noch einen kleinen kurzen Abstecher in den Hippie-Ort El Bolsón. Leider war uns das Wetter nicht sehr freundlich gesinnt und die Berglandschaft um El Bolsón zeigte sich erst, als wir schon wieder im Bus für die Weiterfahrt nach Bariloche sassen. Naja, man kann nicht immer Glück haben.
+
+Bariloche wird mancherorts auch als „Schweiz Argentiniens“ bezeichnet. Kein Wunder, denn neben den Landschaften mit tiefblauen Seen und Bergen mit Skigebieten wurde die Stadt in der Vergangenheit stark von Schweizer und Deutschen Immigranten beeinflusst. So gibt es einige hochklassige Schoggi-Lädeli und Restaurants mit Fondue im Angebot. Auf der Suche nach einem guten Restaurant für Heiligabend (natürlich wollten wir Fleisch-Fondue essen – was sonst?) stiessen wir verdutzt auf das „Chalet Suisse“. An der Frontseite des schönen Chalets waren die Schweizer Kantonswappen angebracht, unmöglich also dass wir als stolze Schweizer an so einem Stück Helvetien vorbeigehen. So mussten wir dank Fredy – er ist ursprünglich aus Zürich, lebt seit 40 Jahren in Argentinien und bewirtschaftet das Chalet Suisse – nicht auf unser Fondue Bourguignon verzichten. Und weil wir im Schweizer Restaurant natürlich nicht die einzigen Schweizer Gäste blieben, gabs noch einen gemütlichen Austausch mit Nathalie und Manuel aus der Ostschweiz.
+
+An den Weihnachtstagen ging in Bariloche fast nix. Bustickets kaufen war nicht möglich, Schokolade-Museum hatte geschlossen und die Fahrt mit dem Sessellift zum schönen Aussichtspunkt mussten wir ebenso vertagen. So blieb uns immerhin dank Skype genug Zeit für je eine Live-Schaltung an die Weihnachtsfeiern unserer Familien in Andwil und Wittenbach. Ein wenig traurig waren wir schon, als wir die schönen Tännchen in den vertrauten Stuben mit dem hosteleigenen, kitschig geschmückten Mini-Weihnachtsbaumverschnitt aus Plastik vergleichen mussten. Wir trösteten uns dafür mit dem Vernaschen einer leckeren Lebkuchenmann-Familie und holen in einem Jahr dann die verpasste Weihnachtsstimmung nach.
+
+Auch für ein wenig Sport war in Bariloche dank Bike-Verleih gesorgt, wir liessen uns zu einer Velorundfahrt hinreissen. Das zig-malige rauf und runter auf der hügligen Strecke (Francesca ist bergaufwärts jeweils etwas weniger gesprächig) wurde belohnt mit schönen Aussichtspunkten auf Berge und Seen in den verschiedensten Blautönen. Von den allgegenwärtigen Aschewolken, welche die Sicht ein wenig einschränken, liessen wir uns nicht stören. Bariloche leidet seit einiger Zeit unter einem aktiven Vulkan an der Grenze zu Chile, der immer wieder Asche ausspuckt. Sand und Asche sammeln sich auf Dächern und Strassen und wurden schon tonnenweise weggeräumt.
+
+Um die auf der Velotour verbrannten Kalorien wieder anzufuttern (und zur Feier meines Geburtstags) gabs dann an unserem vorläufig letzten Abend in Argentinien eine leckere Portion Rindfleisch und guten argentinischen Rotwein.

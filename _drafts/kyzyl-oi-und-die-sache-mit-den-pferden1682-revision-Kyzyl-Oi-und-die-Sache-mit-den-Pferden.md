@@ -1,0 +1,17 @@
+---
+id: 1683
+title: 'Kyzyl Oi und die Sache mit den Pferden'
+date: '2012-10-18T15:18:13+02:00'
+author: Francesca
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2012/10/1682-revision/'
+permalink: '/?p=1683'
+---
+
+Zu guter Letzt solls nochmals so richtig abgelegen werden, dachten wir uns. Und Kyzyl Oi wurde praktisch nicht beachtet in unserem Reiseführer, deswegen verdächtig gut. Die als einzig für wichtig befundene Information war, dass dieses Dörfchen schwierig zugänglich sei, da kein Taxifahrer wirklich Lust hat vier Stunden über holprige Strassen ins Niemandsland zu fahren.
+
+Wir fanden einen, und mit dem Taxifahrer auch gleich die zwei notwendigen Mitfahrer. Mandy und Carsten aus Dresden. Der Taxifahrer hatte trotz gut (für ihn) ausgehandeltem Preis schlechte Laune. Sonntag, und da wollen ständig schwatzende Touris auch noch in den hinterletzten Ecken dieses Landes… Seine Laune besserte sich nicht, als wir auch noch eine Pipi- und Fotopause einlegen wollten. Endgültig vorbei war es dann, als das Auto nicht mehr richtig wollte. Aber merke: Taxifahrer = Mechaniker. Mit einem Plastiksack mal schnell den Schlauch für die Bremsflüssigkeit abgedichtet und mit einem noch viel saureren Fahrer weiter. Langsam aber sicher hätte sich das Dorf schon mal nähern können.
+
+Im Kaff und unserer Gastfamilie angekommen, kamen wir kurz ins Staunen. Unsere Gastmutter sprach Deutsch. Mursa war früher Deutschlehrerin im Dorf, musste später dann aber auf Russisch umstellen. Das Deutsch ist ihr geblieben und so konnten wir beidseits mal alle wichtigen und unwichtigen Fragen kultureller Natur klären. Mursa schien nur auf einen Informatiker gewartet zu haben. Sie hätten in der Dorfschule nämlich einen Computerraum um Informatik zu unterrichten, jedoch würde kein einziger Computer mehr funktionieren. Tatatataa, hier war er, der Computerexperte. Mit dem Versprechen, sich die „Sache“ mal anzuschauen, machten wir uns am nächsten Tag auf den Weg zur Schule. Und da standen sie, die kaputten Computer. Und der Drucker. Und der Kopierer. Wir schienen wichtig, denn sogar der nervöse Schuldirektor wuselte ständig um uns rum, als Pädi Computer für Computer unter die Lupe nahm. Auch die Hilfe der Assistentin (Kabel einstecken, Kabel ausstecken, Kabel umstecken, gescheit dreinschauen) brachte die Mission nicht zum Erfolg. Kein Computer war zu retten. Einzig der Drucker und der Kopierer liessen sich helfen. Mursa nahms gelassen, der Schuldirektor nicht.
+
+Um nicht im Informatikraum zu versauern, überredeten wir lauffaulen Schweizer die lauffreudigen Deutschen, mit uns die Umgebung auf dem Pferd zu erkunden. Anfangs wollten sie ja nicht so recht, weil sie noch nie zuvor auf einem Pferd sassen. Als wir „erfahrenen“ Reiter dann aber von „die-trotten-bloss-dahin-Pferden“ sprachen, hatten wir sie im Sack. Was soll ich sagen… Auf diesem Ausritt hat wohl jeder mal jeden verflucht. Am meisten verfluchten wir den Guide. Und die Pferde. Gleich danach uns selbst. Der Guide wollte nicht, wir wollten, aber die Pferde wollten bestimmt nicht dahin wo wir hinwollten. Das Ganze endete mit blutigen Gesässen, laufenden Reitern, die die Pferde hinter sich herzogen und einem beleidigten Guide, der schon mal zwei Kilometer vorritt. Als nach ZEHN Stunden auf der Geraden zurück ins Dorf die Pferde auf einmal doch noch wollten und zu galoppieren begannen, wollten wir nicht mehr… Mandy und Carsten, sorry!

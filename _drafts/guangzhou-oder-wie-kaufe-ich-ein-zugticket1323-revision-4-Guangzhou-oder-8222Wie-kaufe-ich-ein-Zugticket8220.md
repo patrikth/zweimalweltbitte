@@ -1,0 +1,19 @@
+---
+id: 1364
+title: 'Guangzhou oder &#8222;Wie kaufe ich ein Zugticket&#8220;'
+date: '2012-07-16T18:39:08+02:00'
+author: Francesca
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2012/07/1323-revision-4/'
+permalink: '/?p=1364'
+---
+
+[![](https://lh6.googleusercontent.com/-_GFvy_JGQWE/UARCgl0nN_I/AAAAAAAAOus/Xf5qnLgPvwY/s400/Foto%25252017.07.12%25252000%25252026%25252002.jpg "Mandarin für Dummies")](https://lh6.googleusercontent.com/-_GFvy_JGQWE/UARCgl0nN_I/AAAAAAAAOus/Xf5qnLgPvwY/Foto%25252017.07.12%25252000%25252026%25252002.jpg)Mit dem Schnellzug von Hongkong nach China. Was in Hongkong noch ein Leichtes war, sich mit einem Zugticket zu brüsten, wurde in Guangzhou zu einem bitteren Kampf. Dazu gleich. Guangzhou. Eigentlich wollten wir ja gar nicht dahin. Wieso sind wir denn dahin? Ja weil eben dummerweise kein Zug direkt nach Guilin, dem nächsten von uns gewünschtem Halt, fährt. Also ein Halt im Städtli dazwischen. Das Städtli entpuppte sich als 10 Millionen-Stadt… 1. Päng!
+
+Okay, ruhig Blut. Am besten nehmen wir uns ein Hostel nahe dem Bahnhof, so können wir abends rasch Billete kaufen und nächstentags sind wir ruckzuck am Gleis. 2. Päng! NIEMAND (also kein Ausländer) kauft einfach so mal schnell ein Zugbillet in China. Da geht man als unwissender Tourist mit seinem „Mandarin-für-Anfänger“-Büechi (obwohl in Kantonesischer Region!) in Richtung Bahnhof. Ah ja, da oben stehts in Englisch sogar geschrieben: Tickets. Ganz einfach. Dem Wegweiser und den Menschenmassen folgen. Da stehen wir nun in einer Halle im ersten Stock des Gebäudes. Ah rechts. Hää? Wo sind denn diese Schalter hin? Moment mal, da steht erneut Tickets und der Wegweiser zeigt eindeutig nach unten. Nachdem wir das ganze Gebäude besichtigt hatten, fanden auch wir noch den Weg nach unten. Viele Wege führen zum Ticketschalter…
+
+Dort traf uns dann fast der Schlag. Riesige Halle, erdrückend heiss, erdrückend laut, erdrückend voll mit Chinesen, erdrückend viele Schalter und erdrückend lange Schlangen davor. Am erdrückendsten fand ich dann ehrlicherweise die tollen Anzeigetafeln oberhalb der Schalter. Uns kam das Ganze total Chinesisch vor. Jede Anzeigetafel hatte andere Schriftzeichen und keines sah so aus, wie das von Guilin hätte aussehen müssen. Wieder ruhig Blut. An welcher Schlange sollen wir uns anstellen? Machen wir etwas falsch, wenn wir einfach irgendwo anstehen? Sollen wir jemanden um Hilfe bitten? Irgendjemand von den hunderten, wartenden Menschen wird ja Englisch können. Wen soll ich fragen? Wie erkenne ich, ob jemand ein paar Brocken Englisch spricht? Ja die da, mit der intelektuellen Brille. „Excuse me, could you help me?“ Der Blick der Dame verrät mir schon alles bevor sie den Mund aufmacht. Okay, dann eben nicht. Das junge Fräulein nebenan mit der hippen Frisur vielleicht? Anfängerpech.
+
+Will uns denn niemand verstehen? Alle starren, niemand hilft. Änderung der Taktik: „Ni hao (hallo), tschu tschu (Zug in meiner Kindersprache) Guilin (die gewünschte Destination)?“ Sie starren noch immer, spreche ich es falsch aus? Ich rufe „Guilin? Guilin?“. Niemand scheint zu begreifen, was ich schon in deutlicher Verzweiflung und mit Anstrengungsschweiss bezwecken will. Erneuter Taktikwechsel: das Mandarin-Büechli mit herzigen Bildern (wie z.B von einem Zug). Ich zeige wie wild darauf und hole mein „Guilin!“ wieder hervor. Dreht sich bereits die ganze Halle nach uns um? Wir scheinen der fleischgewordene Albtraum eines jeden Chinesen zu sein.. Dann die Erlösung. „Need help?“ Ich hätte den jungen Herrn knutschen können. Er half uns nicht nur in die richtige Schlange, sondern stand dort mit uns an und informierte netterweise auch noch die Dame am Schalter, was wir wollen. DANKE!
+
+Das Ticket in den fast nicht mehr zittrigen Händen haltend, das Herz wieder in der Brust spürend, mussten wir merken, dass der morgige Zug nicht von diesem Bahnhof geht. Guangzhou hat vier Bahnhöfe. 3. Päng!

@@ -1,0 +1,20 @@
+---
+id: 587
+title: 'Do it yourself Machu Picchu'
+date: '2012-02-17T07:30:45+01:00'
+author: Pädi
+layout: post
+guid: 'http://www.zweimalweltbitte.ch/?p=587'
+permalink: /2012/02/do-it-yourself-machu-picchu/
+categories:
+    - Peru
+    - Südamerika
+---
+
+[![](https://lh3.googleusercontent.com/-t7VH8DLcRxU/TzSekxnrnfI/AAAAAAAAMZw/d0bziQXAYd0/s400/DSC04894.JPG "Machu Picchu")](https://lh3.googleusercontent.com/-t7VH8DLcRxU/TzSekxnrnfI/AAAAAAAAMZw/d0bziQXAYd0/DSC04894.JPG)Es wäre so einfach. Rein zu einem der zahllosen Touranbietern, „Zweimal Machu Picchu Tour mit Pommes, bitte!“, Geld hinklatschen und auf die organisierte Zweitagestour. Ist aber natürlich nix für uns extremen Indie-Traveler.. Wir rennen lieber einmal zur Touristen Info („Wie kommen wir allein zum Machu Picchu?“), dann quer durch Cusco zum Verkaufspunkt der Tickets und nochmals auf die andere Seite der Stadt für das Zugbillet. Obs letzten Endes günstiger war, wissen wir nicht – aber hauptsache selbständig unterwegs, ne!
+
+Illusionen machen wir uns natürlich keine. Natürlich waren wir zusammen mit der ganzen Touristen-Meute im Zug nach Aguas Calientes, den Ausgangspunkt um auf den Machu Picchu zu gelangen. Eine schöne Fahrt ist es trotzdem: Am Fluss und steilen, grün bewachsenen Felswänden entlang fahrend hatte man durch die Panoramafenster einen tollen Blick auf die mystisch im Nebel liegenden Spitzen der nahen Berge.
+
+Um am Folgetag den Touristenmassen ein Schnippchen zu schlagen, liessen wir klugen Köpfe uns natürlich was Tolles einfallen. Wecker stellen um 04:30 Uhr. Klasse! Und auf geht es zum Bus-Terminal zum Warten auf den ersten Bus. Ohne einen Kaffee, versteht sich. Der in Südamerika beliebte „Americano“ (heisses Wasser mit bisschen Kaffee) ist meiner Meinung nach sowieso eine Beleidigung, nein ein Verbrechen am Kaffee an sich. Aber das ist ein anderes Thema.
+
+So landeten wir als einige der ersten Besucher um 6 Uhr morgens vor den Pforten des Machu Picchu und konnten den Sonnenaufgang geniessen. Sogar Fotos knipsen war möglich, ohne die sich später um die Ruinen schlängelnden Touristenströme. Einfach nur eindrucksvoll, was die Inkas auf diesem Berg für eine Stätte errichtet hatten. Noch heute ist nicht wirklich erforscht, was die Inkas an diesem geheimnisvollen Ort trieben, wo heute nur noch die Lamas grasen.

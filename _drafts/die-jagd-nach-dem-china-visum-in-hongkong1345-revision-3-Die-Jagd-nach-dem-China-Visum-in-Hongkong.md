@@ -1,0 +1,17 @@
+---
+id: 1350
+title: 'Die Jagd nach dem China-Visum in Hongkong'
+date: '2012-07-12T18:21:26+02:00'
+author: Pädi
+layout: revision
+guid: 'http://www.zweimalweltbitte.ch/2012/07/1345-revision-3/'
+permalink: '/?p=1350'
+---
+
+[![Goldfischmarkt in Hongkong](https://lh4.googleusercontent.com/-nRduEP0OCWk/T_72S6GOK9I/AAAAAAAAOrE/DPkKISRdlyo/s400/DSC06708.JPG "Goldfischmarkt in Hongkong")](https://lh4.googleusercontent.com/-nRduEP0OCWk/T_72S6GOK9I/AAAAAAAAOrE/DPkKISRdlyo/DSC06708.JPG)Nach neun Monaten auf dem amerikanischen Kontinent war der Flug über den Pazifik nach Hongkong ein grosses Ding für uns. Besonders weil wir planten, erst in Hongkong unser China-Visum zu beantragen (für die Einreise nach Hongkong war kein Visum nötig). Schon viele Räubergeschichten hatten wir in dieser Hinsicht gehört, z.B. dass die Chinesen Buchungsbestätigungen für sämtliche Hotels und Transporte im Voraus verlangen würden. Dies entspricht hingegen, sagen wir mal, nicht gerade unserer Reiseart (ich nenne unser Vagabundenleben ja elegant „Agiles Reisen“). Also ab in die Höhle des Löwens: Freitag gings ab aufs China-Amt die 6 Seiten Formular ausfüllen. Nicht mal absichtlich trugen wir in der Rubrik „Mail Adress in China“ nur unsere E-Mail Adressen ein und wurden vor der Abgabe unserer Formulare nett darauf hingewiesen, dass da eine Postadresse hingehört. Blöde Sache. Kurzerhand buchten wir in unseren Köpfen also die Fantasieunterkunft „Shanghai Hostel“ und siehe da, das Formular wird angenommen. „Monday here collect Visa eleven“, okay danke tschüss. Der erste Kontakt mit Chinesen im öffentlichen Dienst: Irritierend.
+
+Übers Wochenende hatten wir somit schön Zeit uns auszumalen, wie nun unsere Visaformulare durch die chinesischen Bürokratiemühlen gedreht werden. Wir hofften natürlich ein wenig auf den Schweizer-Bonus, denn schliesslich hatte es ja bei der Ankunft am Flughafen ein grosses Roger Federer Plakat mit seiner schönen Schweizer Uhr. Und mit den Schweizer Uhrenmachern und Roger Federer, da wollen es sich doch die lieben Chinesen nicht verscherzen, nicht wahr?
+
+Neben dem Jetlag traf uns der Kulturschock mit voller Wucht. Da wären einerseits die hohe Luchtfeuchtigkeit und die konstanten Temperaturen – konstant zwischen 30 und 40 Grad. Dazu kamen die riesigen Menschenmassen mit ihren rüpelhaften Einzelteilen und die Probleme mit der Sprache. Mit Mandarin kommt man in Hongkong nicht weit, hier im Süden von China wird Kantonesisch gesprochen. Ein Glück, dass wir beides nicht beherrschen. So gings mehrmals mit den lustigen Doppelstöcker-Trams quer durch die Stadt. Beispielsweise zum Goldfischmarkt wo Fische in kleinen Plastiksäcken verkauft werden oder zur Stars Avenue die Bruce Lee Statue und die irre Lichtshow an der hongkonger Skyline angucken.
+
+So haben wir uns nicht gerade in die Stadt verliebt, ein paar Visum-Wartetage bringt man in Hongkong jedoch gut rum. Ach ja, wir wurden übrigens nicht wegen Falschangaben im Formular aus unserem 9qm Hostelzimmerchen in eine (vielleicht etwas grössere) Gefängniszelle verfrachtet. Das Visum haben wir am Montag kommentarlos ohne Probleme und ohne Lächeln gekriegt. Los gehts nach China!
