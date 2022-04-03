@@ -1,0 +1,39 @@
+<?xml version="1.0" encoding="UTF-8"?><rss version="2.0"
+	xmlns:content="http://purl.org/rss/1.0/modules/content/"
+	xmlns:dc="http://purl.org/dc/elements/1.1/"
+	xmlns:atom="http://www.w3.org/2005/Atom"
+	xmlns:sy="http://purl.org/rss/1.0/modules/syndication/"
+	
+	>
+<channel>
+	<title>
+	Kommentare zu: Salento &#8211; wo der Kaffee wächst	</title>
+	<atom:link href="/2012/04/salento-wo-der-kaffee-wachst/feed/" rel="self" type="application/rss+xml" />
+	<link>/2012/04/salento-wo-der-kaffee-wachst/</link>
+	<description>Francesca und Pädi reisen durch die Welt</description>
+	<lastBuildDate>Wed, 04 Apr 2012 21:28:19 +0000</lastBuildDate>
+	<sy:updatePeriod>
+	hourly	</sy:updatePeriod>
+	<sy:updateFrequency>
+	1	</sy:updateFrequency>
+	<generator>https://wordpress.org/?v=5.9.2</generator>
+	<item>
+		<title>
+		Von: Urs		</title>
+		<link>/2012/04/salento-wo-der-kaffee-wachst/#comment-372</link>
+
+		<dc:creator><![CDATA[Urs]]></dc:creator>
+		<pubDate>Wed, 04 Apr 2012 21:28:19 +0000</pubDate>
+		<guid isPermaLink="false">http://www.zweimalweltbitte.ch/?p=814#comment-372</guid>
+
+					<description><![CDATA[Mmmhh gratis Kaffee :-). Das wär etwas für die Bachelor-Arbeit gewesen.
+Grüsse aus der Schweiz
+Urs]]></description>
+			<content:encoded><![CDATA[<p>Mmmhh gratis Kaffee :-). Das wär etwas für die Bachelor-Arbeit gewesen.<br />
+Grüsse aus der Schweiz<br />
+Urs</p>
+]]></content:encoded>
+		
+			</item>
+	</channel>
+</rss>

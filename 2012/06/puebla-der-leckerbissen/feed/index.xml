@@ -1,0 +1,55 @@
+<?xml version="1.0" encoding="UTF-8"?><rss version="2.0"
+	xmlns:content="http://purl.org/rss/1.0/modules/content/"
+	xmlns:dc="http://purl.org/dc/elements/1.1/"
+	xmlns:atom="http://www.w3.org/2005/Atom"
+	xmlns:sy="http://purl.org/rss/1.0/modules/syndication/"
+	
+	>
+<channel>
+	<title>
+	Kommentare zu: Puebla, der Leckerbissen	</title>
+	<atom:link href="/2012/06/puebla-der-leckerbissen/feed/" rel="self" type="application/rss+xml" />
+	<link>/2012/06/puebla-der-leckerbissen/</link>
+	<description>Francesca und Pädi reisen durch die Welt</description>
+	<lastBuildDate>Sat, 30 Jun 2012 10:24:07 +0000</lastBuildDate>
+	<sy:updatePeriod>
+	hourly	</sy:updatePeriod>
+	<sy:updateFrequency>
+	1	</sy:updateFrequency>
+	<generator>https://wordpress.org/?v=5.9.2</generator>
+	<item>
+		<title>
+		Von: Francesca		</title>
+		<link>/2012/06/puebla-der-leckerbissen/#comment-430</link>
+
+		<dc:creator><![CDATA[Francesca]]></dc:creator>
+		<pubDate>Sat, 30 Jun 2012 10:24:07 +0000</pubDate>
+		<guid isPermaLink="false">http://www.zweimalweltbitte.ch/?p=1244#comment-430</guid>
+
+					<description><![CDATA[Als Antwort auf &lt;a href=&quot;/2012/06/puebla-der-leckerbissen/#comment-428&quot;&gt;Martina&lt;/a&gt;.
+
+Wir zwei Stars, wir :)!]]></description>
+			<content:encoded><![CDATA[<p>Als Antwort auf <a href="/2012/06/puebla-der-leckerbissen/#comment-428">Martina</a>.</p>
+<p>Wir zwei Stars, wir :)!</p>
+]]></content:encoded>
+		
+			</item>
+		<item>
+		<title>
+		Von: Martina		</title>
+		<link>/2012/06/puebla-der-leckerbissen/#comment-428</link>
+
+		<dc:creator><![CDATA[Martina]]></dc:creator>
+		<pubDate>Thu, 28 Jun 2012 12:42:40 +0000</pubDate>
+		<guid isPermaLink="false">http://www.zweimalweltbitte.ch/?p=1244#comment-428</guid>
+
+					<description><![CDATA[Haaaach, Fernweh!! Wir haben es auch geliebt in Puebla... und meine Wenigkeit wurde auch in einem Schulprojekt verewigt! :)
+
+Macht&#039;s gut und bis bald, Martina]]></description>
+			<content:encoded><![CDATA[<p>Haaaach, Fernweh!! Wir haben es auch geliebt in Puebla&#8230; und meine Wenigkeit wurde auch in einem Schulprojekt verewigt! :)</p>
+<p>Macht&#8217;s gut und bis bald, Martina</p>
+]]></content:encoded>
+		
+			</item>
+	</channel>
+</rss>
